@@ -1,1 +1,1 @@
-# [czogori.github.io](czogori.github.io)
+# [czogori.github.io](http://czogori.github.io)
